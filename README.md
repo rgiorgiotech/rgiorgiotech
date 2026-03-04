@@ -5,4 +5,4 @@
 💻 Enthusiast of computer science, telecommunications and networking.
 
 📚 Currently studying networks, signals and radio systems.\
-📫 Reach me at [giorgiomessina.it](https://www.giorgiomessina.it)
+📫 Reach me at [giorgiomessina.eu](https://www.giorgiomessina.eu)
